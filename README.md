@@ -10,4 +10,4 @@
 
 这些链接为您提供多种类型的视频资源，涵盖了欧美日韩、日本以及各类无码内容，满足您对不同影片类型的观看需求。不论是高清资源，还是优质的日韩影片，您都可以通过这些链接轻松访问。此外，还有专为观众提供的福利专区，保证您享受极致的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/thuoc20250709/thuoc1 ）</span>
